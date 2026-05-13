@@ -1,0 +1,1 @@
+# qrbuddypro-privacy-policy
